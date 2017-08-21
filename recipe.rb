@@ -1,6 +1,6 @@
 Recipe :
 
-1. Add 1oz of gin to bottom of shaker
+1. Add 1oz of gin to bottom of mixing glass
 2. Add 1oz of campari to bottom of shaker
 3. Add 1oz of sweet vermouth to bottom of shaker
 4. Shake and serve neat
